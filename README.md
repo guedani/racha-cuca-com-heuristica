@@ -1,0 +1,1 @@
+# racha-cuca-com-heuristica
